@@ -2,7 +2,8 @@
 ### Marlen Penafort
 #### Information 
 ***Email***: marlenp7932@hstat.org  
-***School***: High School ot Telecommunications Arts and Technology
+***School***: High School ot Telecommunications Arts and Technology  
+***[School Website](https://www.hstat.org)***
 
 ---
 
