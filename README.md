@@ -19,3 +19,10 @@ Schedule
 
 ---
 
+#### Extra : Hobbies
+* Crocheting
+* Drawing
+* Games 
+* Instruments 
+    * Guitar
+* Baking
